@@ -8,7 +8,7 @@ I’m believe on constant learning and want to keep applying and growing my codi
 I’m looking to collaborate on impactful, motivated problems either in Computational Chemistry which requires the knowledge of Quantum Chemistry or even data integrated problems that involves basic understanding of data-science.
 To collaborate reach out to me at the email: vaibhav.singh@temple.edu
 
-Also, do not hesitate if wanting to collaborate on playing sports such as Badminton, Cricket, Football 😄 
+Also, do not hesitate if wanting to collaborate on playing Badminton/Cricket/Football/TT 😄 
 
 
 
